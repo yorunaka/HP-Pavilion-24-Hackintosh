@@ -1,0 +1,1 @@
+# HP-Pavilion-24-Hackintosh
